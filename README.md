@@ -18,5 +18,4 @@ I hope to learn more about artificial intelligence, coding, machine learning, an
 - GitHub Collaboration
 
 ## Connect With me
-- LinkedIn: (<img width="993" height="462" alt="linkedin profile" src="https://github.com/user-attachments/assets/2229ab06-f737-4b65-aace-84e399a8be0e" />)
-
+- LinkedIn:https://www.linkedin.com/in/peddaboina-harsha-vardhan-767b953ba?utm_source=share_via&utm_content=profile&utm_medium=member_android
